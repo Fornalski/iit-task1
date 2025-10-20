@@ -1,4 +1,4 @@
-# Will AI Take Our Jo  
+# Will AI Take Our J  
 
 >CAUTION: This is AI-generated overview on the given topic.
 
